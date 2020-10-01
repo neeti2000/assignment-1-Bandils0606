@@ -1,4 +1,4 @@
-# GLA University, 2020
+# GLA University Mathura, 2020
 
 ## Contact Lists
 
